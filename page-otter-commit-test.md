@@ -6,6 +6,12 @@
 
 ## Can we get this to SLACK???
 
+Y'know this time it wasn't my fault. The Doc set all of his clocks twenty-five minutes slow. Never? Uh, Doc. Yeah, well, I still don't understand what Dad was doing in the middle of the street. Yeah, well, how about my homework, McFly?
+
+Well that's your name, isn't it? Calvin Klein. it's written all over your underwear. Oh, I guess they call you Cal, huh? George, aren't you gonna kiss me? Hey man, the dance is over. Unless you know someone else who could play the guitar. You know what I do in those situations? Doc, she's beautiful. She's crazy about me. Look at this, look what she wrote me, Doc. That says it all. Doc, you're my only hope.
+
+Looks like a airplane, without wings. This is for all you lovers out there. No, no, George, look, it's just an act, right? Okay, so 9:00 you're strolling through the parking lot, you see us struggling in the car, you walk up, you open the door and you say, your line, George. Indeed I will, roll em. I, Doctor Emmett Brown, am about to embark on an historic journey. What have I been thinking of, I almost forgot to bring some extra plutonium. How did I ever expect to get back, one pallet one trip I must be out of my mind. What is it Einy? Oh my god, they found me, I don't know how but they found me. Run for it, Marty. This sounds pretty heavy.
+
 ## Do, or do not
 
 I'll call you tonight. You bet. The future, it's where you're going? Our first television set, Dad just picked it up today. Do you have a television? Don't say a word.
