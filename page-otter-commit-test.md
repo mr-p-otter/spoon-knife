@@ -4,6 +4,12 @@
 
 ## For real this time
 
+So you're my Uncle Joey. Better get used to these bars, kid. Marty, you didn't fall asleep, did you? Marty, I'm sorry, but the only power source capable of generating one point twenty-one gigawatts of electricity is a bolt of lightning. Biff, stop it. Biff, you're breaking his arm. Biff, stop. In that case, I'll tell you strait out.
+
+Nah, I just don't think I'm cut out for music. Take care. Perfect, just perfect. About 30 years, it's a nice round number. What the hell is this?
+
+It's uh, the other end of town, a block past Maple. Yeah well look, Marvin, Marvin, you gotta play. See that's where they kiss for the first time on the dance floor. And if there's no music, they can't dance, and if they can't dance, they can't kiss, and if they can't kiss, they can't fall in love and I'm history. I'm telling the truth, Doc, you gotta believe me. Okay, but I don't know what to say. This is uh, this is heavy duty, Doc, this is great. Uh, does it run on regular unleaded gasoline?
+
 ## Can we get this to SLACK???
 
 Y'know this time it wasn't my fault. The Doc set all of his clocks twenty-five minutes slow. Never? Uh, Doc. Yeah, well, I still don't understand what Dad was doing in the middle of the street. Yeah, well, how about my homework, McFly?
