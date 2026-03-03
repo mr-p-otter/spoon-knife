@@ -8,6 +8,12 @@
 
 ## Do, or do not
 
+I'll call you tonight. You bet. The future, it's where you're going? Our first television set, Dad just picked it up today. Do you have a television? Don't say a word.
+
+Quiet down, I'm sure the car is fine. Well gee, I don't know. Of course not, Biff, now I wouldn't want that to happen. Now, uh, I'll finish those reports up tonight, and I'll run em them on over first thing tomorrow, alright? In that case, I'll tell you strait out. Bet your ass it works.
+
+Oh, hi , Marty. I didn't hear you come in. Fascinating device, this video unit. Hey Biff, check out this guy's life preserver, dork thinks he's gonna drown. Doc. I've gotta go. You bet.
+
 ## There is not try
 
 George. George. No, Biff, you leave her alone. Jennifer, oh are you a sight for sore eyes. Let me look at you. What the hell is a gigawatt? In that case, I'll tell you strait out.
